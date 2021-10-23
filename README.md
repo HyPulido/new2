@@ -5,3 +5,6 @@ como vamos todos
 acabo de guardar
 guardado local
 guar local 2
+jgjg
+ole
+como esta 
