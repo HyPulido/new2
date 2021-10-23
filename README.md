@@ -8,3 +8,6 @@ guar local 2
 jgjg
 ole
 como esta 
+que hace
+otra
+ty otra 
